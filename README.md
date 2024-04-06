@@ -1,3 +1,6 @@
+YOU DO NOT HAVE TO CREDIT ME FOR THIS SCRIPT ITS ACTUALLY VERY EASY TO MAKE
+
+
 Just download the package
 
 Functions
